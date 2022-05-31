@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Devendra-pawar
 
-- 🌱 I’m currently pursuing myy B_TECH degree
+- 🌱 I’m currently pursuing my B_TECH degree
 
 - 📫 How to reach me  iamdevendra06@gmail.com this is my gmail
 
